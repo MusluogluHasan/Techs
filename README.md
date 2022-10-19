@@ -1,2 +1,2 @@
 # Techs Link
-[Your link here](http://musluoglu.epizy.com/demo-1)
+[Your link here](http://musluoglu.epizy.com/apltech)
